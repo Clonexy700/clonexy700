@@ -1,7 +1,7 @@
 <!-- By https://github.com/clonexy700 -->
 
 ## Clonexy700 (Georgiy Dedov)
-![Hi Marisu Kirisame - piano]([https://gifdb.com/images/high/anime-touhou-ice-fairy-cirno-turning-around-df3gipt0fow64mn8.gif](https://i.pinimg.com/originals/41/af/2d/41af2d3c2bf95a66718d354d438d432d.gif))
+![Hi!](https://i.pinimg.com/originals/41/af/2d/41af2d3c2bf95a66718d354d438d432d.gif)
 
 ### Contacts
 
